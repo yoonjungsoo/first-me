@@ -1,2 +1,2 @@
 # first-me
-Churon Hardinang, please sit on the moon^0^
+잘 못하지만 잘 봐주세요^0^
